@@ -1,3 +1,3 @@
 boo 
 
-rick prime & em kin
+rick prime & em kins
